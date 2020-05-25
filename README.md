@@ -1,3 +1,3 @@
 # my-repositary
-hii riends!!!
+hii friends!!!
 venkatesh here i like coding and problem solving
